@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on data science , Data Analytics & Data Visualization projects
 
-📫 Reach me on seeramruthpraisy@gmail.com
+📫 Reach me on praisyseeram@gmail.com
